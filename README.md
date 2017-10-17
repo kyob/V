@@ -1,15 +1,16 @@
 # V
+
 *Mahatma Gandhi:* 
 >  Najpierw cię ignorują. Potem śmieją się z ciebie. Później z tobą walczą. Później wygrywasz. 
 
-Książki:
+### Książki:
 - Nowoczesne zasady odżywiania. Przełomowe badanie wpływu żywienia na zdrowie - T. Colin Campbell, Thomas M. Campbell II
 - Jak nie umrzeć przedwcześnie. Co jeść, aby dłużej cieszyć się zdrowiem - Greger Michael, Stone Grene
 - Kuchnia dla biegaczy - siła z roślin -  Domaradzka Violetta, Zakrzewski Robert, Parol Damian 
 - Jedz i biegaj - Scott Jurek
 - Ukryta siła - Rich Roll
 
-Filmy:
+### Filmy:
 - [Earthlings](https://vimeo.com/209647801)
 - [Forks Over Knives](https://www.forksoverknives.com/)
 - [Food, Inc.](http://www.takepart.com/foodinc)
@@ -17,7 +18,7 @@ Filmy:
 - [Food Choices](http://www.foodchoicesmovie.com/)
 - [What the Health](http://www.whatthehealthfilm.com/)
 
-Promotorzy:
+### Promotorzy:
 - [T. Colin Campbell](https://en.wikipedia.org/wiki/T._Colin_Campbell)
 - [Caldwell Esselstyn](https://en.wikipedia.org/wiki/Caldwell_Esselstyn)
 - [Michael Klaper](https://en.wikipedia.org/wiki/Michael_Klaper)
