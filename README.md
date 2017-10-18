@@ -24,3 +24,8 @@
 - [Michael Klaper](https://en.wikipedia.org/wiki/Michael_Klaper)
 - [Michael Greger](https://en.wikipedia.org/wiki/Michael_Greger)
 - [Neal D. Barnard](https://en.wikipedia.org/wiki/Neal_D._Barnard)
+
+### Stronki:
+- [NutritionFacts](https://nutritionfacts.org/)
+- [Harvard Nutrition Source](https://www.hsph.harvard.edu/nutritionsource/)
+- [Harvard Health](https://www.health.harvard.edu/)
