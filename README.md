@@ -8,6 +8,7 @@
 - [Ukryta siła](https://goo.gl/Tz6QR2) - Rich Roll
 
 ### Filmy
+- [Dominion](https://www.aussiefarms.org.au/dominion)
 - [Earthlings](https://vimeo.com/209647801)
 - [Forks Over Knives](https://www.forksoverknives.com/)
 - [Food, Inc.](http://www.takepart.com/foodinc)
