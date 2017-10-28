@@ -22,6 +22,7 @@
 - [Michael Klaper](https://en.wikipedia.org/wiki/Michael_Klaper)
 - [Michael Greger](https://en.wikipedia.org/wiki/Michael_Greger)
 - [Neal D. Barnard](https://en.wikipedia.org/wiki/Neal_D._Barnard)
+- [John A. McDougall](https://pl.wikipedia.org/wiki/John_A._McDougall)
 
 ### Stronki
 - [Harvard - Healthy Eating Plate & Healthy Eating Pyramid](https://www.hsph.harvard.edu/nutritionsource/healthy-eating-plate/)
