@@ -31,6 +31,7 @@
 - [Harvard Nutrition Source](https://www.hsph.harvard.edu/nutritionsource/)
 - [Harvard Health](https://www.health.harvard.edu/)
 - [Center of nutrition studies](http://nutritionstudies.org/)
+- [Salaterka](http://salaterka.pl/)
 
 ### Youtube
 - [ODMŁADZANIE NA SUROWO](https://www.youtube.com/channel/UCcsSvPhyMGk5B3p_mw5WUdA)
