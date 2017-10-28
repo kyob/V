@@ -23,6 +23,7 @@
 - [Neal D. Barnard](https://en.wikipedia.org/wiki/Neal_D._Barnard)
 
 ### Stronki
+- [Harvard - Healthy Eating Plate & Healthy Eating Pyramid](https://www.hsph.harvard.edu/nutritionsource/healthy-eating-plate/)
 - [NutritionFacts](https://nutritionfacts.org/)
 - [Harvard Nutrition Source](https://www.hsph.harvard.edu/nutritionsource/)
 - [Harvard Health](https://www.health.harvard.edu/)
