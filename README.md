@@ -1,11 +1,11 @@
 # V
 
 ### Książki
-- Nowoczesne zasady odżywiania. Przełomowe badanie wpływu żywienia na zdrowie - T. Colin Campbell, Thomas M. Campbell II
-- Jak nie umrzeć przedwcześnie. Co jeść, aby dłużej cieszyć się zdrowiem - Greger Michael, Stone Grene
-- Kuchnia dla biegaczy - siła z roślin -  Domaradzka Violetta, Zakrzewski Robert, Parol Damian 
-- Jedz i biegaj - Scott Jurek
-- Ukryta siła - Rich Roll
+- [Nowoczesne zasady odżywiania. Przełomowe badanie wpływu żywienia na zdrowie](https://goo.gl/YqErzP) - T. Colin Campbell, Thomas M. Campbell II
+- [Jak nie umrzeć przedwcześnie. Co jeść, aby dłużej cieszyć się zdrowiem](https://goo.gl/n8LD4j) - Greger Michael, Stone Grene
+- [Kuchnia dla biegaczy - siła z roślin](https://goo.gl/AbXzKu) -  Domaradzka Violetta, Zakrzewski Robert, Parol Damian 
+- [Jedz i biegaj](https://goo.gl/crwAmU) - Scott Jurek
+- [Ukryta siła](https://goo.gl/Tz6QR2) - Rich Roll
 
 ### Filmy
 - [Earthlings](https://vimeo.com/209647801)
