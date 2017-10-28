@@ -13,7 +13,7 @@
 - [Food, Inc.](http://www.takepart.com/foodinc)
 - [Cowspiracy: The Sustainability Secret](http://www.cowspiracy.com/)
 - [Food Choices](http://www.foodchoicesmovie.com/)
-- [What the Health](http://www.whatthehealthfilm.com/)
+- [What the Health](http://www.whatthehealthfilm.com/) [Film z napisami PL](https://www.youtube.com/watch?v=TqsJtsB2DIk)
 
 ### Promotorzy
 - [T. Colin Campbell](https://en.wikipedia.org/wiki/T._Colin_Campbell)
@@ -31,5 +31,8 @@
 ### Youtube
 - [ODMŁADZANIE NA SUROWO](https://www.youtube.com/channel/UCcsSvPhyMGk5B3p_mw5WUdA)
 - [Sięgnij po zdrowie](https://www.youtube.com/channel/UC5M8qmnookQqZbzxWg6opcg)
+- [PLANT BASED NEWS](https://www.youtube.com/channel/UCJRjK20fHylJyf-HiBtqI2w)
 - [GojiMan](https://www.youtube.com/channel/UC8zKmTVcs5s3IIR2DVlxfzA)
 - [Simnett Nutrition](https://www.youtube.com/channel/UCpyhJZhJQWKDdJCR07jPY-Q)
+- [Vegan Hustle TV](https://www.youtube.com/channel/UC3R83OcCzoCmRc2AapQeL7A)
+- [Plant Based Science London](https://www.youtube.com/channel/UCG7U-imx8hu6NLOxanXkROQ)
