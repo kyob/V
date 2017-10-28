@@ -1,4 +1,4 @@
-# V
+# Szybka krótka lista
 
 ### Książki
 - [Nowoczesne zasady odżywiania. Przełomowe badanie wpływu żywienia na zdrowie](https://goo.gl/YqErzP) - T. Colin Campbell, Thomas M. Campbell II
