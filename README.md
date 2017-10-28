@@ -13,7 +13,7 @@
 - [Food, Inc.](http://www.takepart.com/foodinc)
 - [Cowspiracy: The Sustainability Secret](http://www.cowspiracy.com/)
 - [Food Choices](http://www.foodchoicesmovie.com/)
-- [What the Health](http://www.whatthehealthfilm.com/) [Film z napisami PL](https://www.youtube.com/watch?v=TqsJtsB2DIk)
+- [What the Health](http://www.whatthehealthfilm.com/) [ [werja z napisami PL](https://www.youtube.com/watch?v=TqsJtsB2DIk) ]
 
 ### Promotorzy
 - [T. Colin Campbell](https://en.wikipedia.org/wiki/T._Colin_Campbell)
