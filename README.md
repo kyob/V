@@ -24,6 +24,9 @@
 - [Neal D. Barnard](https://en.wikipedia.org/wiki/Neal_D._Barnard)
 - [John A. McDougall](https://pl.wikipedia.org/wiki/John_A._McDougall)
 
+### Infografika
+- [Jelita jak drugi mózg?](https://kobieta.onet.pl/zdrowie/jelita-jak-drugi-mozg-infografika/x7hpkhj)
+
 ### Stronki
 - [Harvard - Healthy Eating Plate & Healthy Eating Pyramid](https://www.hsph.harvard.edu/nutritionsource/healthy-eating-plate/)
 - [Oxford - Plant-based diets could save millions of lives](http://www.oxfordmartin.ox.ac.uk/news/201603_Plant_based_diets)
