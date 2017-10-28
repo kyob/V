@@ -30,7 +30,4 @@
 
 ### Youtube
 - [GojiMan](https://www.youtube.com/channel/UC8zKmTVcs5s3IIR2DVlxfzA)
-
-
-*Mahatma Gandhi:* 
->  Najpierw cię ignorują. Potem śmieją się z ciebie. Później z tobą walczą. Później wygrywasz. 
+- [ODMŁADZANIE NA SUROWO](https://www.youtube.com/channel/UCcsSvPhyMGk5B3p_mw5WUdA)
