@@ -1,5 +1,8 @@
 # Szybka krótka lista
 
+### Karnizm
+- [Ukryta Przyczyna Jedzenia Mięsa - Dr. Melanie Joy](https://www.youtube.com/watch?v=AINuazo8mz0)
+
 ### Książki
 - [Nowoczesne zasady odżywiania. Przełomowe badanie wpływu żywienia na zdrowie](https://goo.gl/YqErzP) - T. Colin Campbell, Thomas M. Campbell II
 - [Jak nie umrzeć przedwcześnie. Co jeść, aby dłużej cieszyć się zdrowiem](https://goo.gl/n8LD4j) - Greger Michael, Stone Grene
