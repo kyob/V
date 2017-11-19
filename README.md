@@ -49,3 +49,6 @@
 - [Plant Based Science London](https://www.youtube.com/channel/UCG7U-imx8hu6NLOxanXkROQ)
 - [TEDx Why a vegan?](https://www.youtube.com/playlist?list=PLLIFAdznlc7Ea_rlsy4iewYyUKe6dPtrw)
 
+### KogniwistykaDlaczego tak mało pamiętasz ze szkoły? | Radosław Kotarski | TEDxKatowice ?https://www.youtube.com/watch?v=0t-sG8FhC4E
+ - [Co szkoła robi z mózgami dzieci? | Angelika M. Talaga | TEDxKoninED](https://www.youtube.com/watch?v=XnPaz5e-uD8)
+ - [Dlaczego tak mało pamiętasz ze szkoły? | Radosław Kotarski | TEDxKatowice](https://www.youtube.com/watch?v=0t-sG8FhC4E)
