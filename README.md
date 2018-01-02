@@ -41,7 +41,6 @@
 - [Salaterka](http://salaterka.pl/)
 
 ### Youtube
-- [ODMŁADZANIE NA SUROWO](https://www.youtube.com/channel/UCcsSvPhyMGk5B3p_mw5WUdA)
 - [Sięgnij po zdrowie](https://www.youtube.com/channel/UC5M8qmnookQqZbzxWg6opcg)
 - [PLANT BASED NEWS](https://www.youtube.com/channel/UCJRjK20fHylJyf-HiBtqI2w)
 - [GojiMan](https://www.youtube.com/channel/UC8zKmTVcs5s3IIR2DVlxfzA)
@@ -49,6 +48,7 @@
 - [Vegan Hustle TV](https://www.youtube.com/channel/UC3R83OcCzoCmRc2AapQeL7A)
 - [Plant Based Science London](https://www.youtube.com/channel/UCG7U-imx8hu6NLOxanXkROQ)
 - [TEDx Why a vegan?](https://www.youtube.com/playlist?list=PLLIFAdznlc7Ea_rlsy4iewYyUKe6dPtrw)
+- [ODMŁADZANIE NA SUROWO - RAW](https://www.youtube.com/channel/UCcsSvPhyMGk5B3p_mw5WUdA)
 
 ### Kogniwistyka ?
  - [Co szkoła robi z mózgami dzieci? | Angelika M. Talaga | TEDxKoninED](https://www.youtube.com/watch?v=XnPaz5e-uD8)
