@@ -19,6 +19,8 @@
 - [Cowspiracy: The Sustainability Secret](http://www.cowspiracy.com/)
 - [Food Choices](http://www.foodchoicesmovie.com/)
 - [What the Health](http://www.whatthehealthfilm.com/) [ [wersja z napisami PL](https://www.youtube.com/watch?v=TqsJtsB2DIk) ]
+- [Po Prostu Na Surowo - Cofanie Cukrzycy w 30 Dni](https://www.youtube.com/watch?v=P6wUdFg0KdY)
+- [Epidemia otyłości](https://www.youtube.com/watch?v=4Ud5V9mBBnI)
 
 ### Promotorzy
 - [T. Colin Campbell](https://en.wikipedia.org/wiki/T._Colin_Campbell)
