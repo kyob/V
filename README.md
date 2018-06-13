@@ -50,6 +50,7 @@
 - [Vegan Hustle TV](https://www.youtube.com/channel/UC3R83OcCzoCmRc2AapQeL7A)
 - [Plant Based Science London](https://www.youtube.com/channel/UCG7U-imx8hu6NLOxanXkROQ)
 - [TEDx Why a vegan?](https://www.youtube.com/playlist?list=PLLIFAdznlc7Ea_rlsy4iewYyUKe6dPtrw)
+- [DAIRY IS SCARY! The industry explained in 5 minutes](https://www.youtube.com/watch?v=UcN7SGGoCNI)
 
 ### Kogniwistyka ?
  - [Co szkoła robi z mózgami dzieci? | Angelika M. Talaga | TEDxKoninED](https://www.youtube.com/watch?v=XnPaz5e-uD8)
