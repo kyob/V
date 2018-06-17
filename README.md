@@ -9,6 +9,7 @@
 - [Kuchnia dla biegaczy - siła z roślin](https://goo.gl/AbXzKu) -  Domaradzka Violetta, Zakrzewski Robert, Parol Damian 
 - [Jedz i biegaj](https://goo.gl/crwAmU) - Scott Jurek
 - [Ukryta siła](https://goo.gl/Tz6QR2) - Rich Roll
+- [Z rakiem walczy się przy stole](https://goo.gl/VE5GUG) - Veronesi Umberto, Pappagallo Mario
 - [Tlenowa przewaga. Trenuj efektywnie, popraw wydolność, wzmocnij zdrowie.](https://goo.gl/8PJFei) - Patrick McKeown
 
 ### Filmy
