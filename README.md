@@ -52,6 +52,9 @@
 - [TEDx Why a vegan?](https://www.youtube.com/playlist?list=PLLIFAdznlc7Ea_rlsy4iewYyUKe6dPtrw)
 - [DAIRY IS SCARY! The industry explained in 5 minutes](https://www.youtube.com/watch?v=UcN7SGGoCNI)
 
+### Sportowcy
+ - [Czesław Lang](http://ekofolwark.pl/czeslaw-lang-nowa-droga-do-zdrowia/)
+
 ### Kogniwistyka ?
  - [Co szkoła robi z mózgami dzieci? | Angelika M. Talaga | TEDxKoninED](https://www.youtube.com/watch?v=XnPaz5e-uD8)
  - [Dlaczego tak mało pamiętasz ze szkoły? | Radosław Kotarski | TEDxKatowice](https://www.youtube.com/watch?v=0t-sG8FhC4E)
