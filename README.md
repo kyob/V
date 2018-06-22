@@ -23,6 +23,9 @@
 - [Po Prostu Na Surowo - Cofanie Cukrzycy w 30 Dni](https://www.youtube.com/watch?v=P6wUdFg0KdY)
 - [Epidemia otyłości](https://www.youtube.com/watch?v=4Ud5V9mBBnI)
  -[H.O.P.E. What You Eat Matters](https://www.youtube.com/watch?v=J0YHjPHm-Sc) napisy PL
+ -[Meat The End](https://www.youtube.com/watch?v=MkSzAxvEr_Y)
+ -[PlantPure Nation](https://www.youtube.com/watch?v=yBKnG9Y0owQ)
+ 
 ### Promotorzy
 - [T. Colin Campbell](https://en.wikipedia.org/wiki/T._Colin_Campbell)
 - [Caldwell Esselstyn](https://en.wikipedia.org/wiki/Caldwell_Esselstyn)
