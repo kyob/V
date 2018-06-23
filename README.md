@@ -33,6 +33,7 @@
 - [Michael Greger](https://en.wikipedia.org/wiki/Michael_Greger)
 - [Neal D. Barnard](https://en.wikipedia.org/wiki/Neal_D._Barnard)
 - [John A. McDougall](https://pl.wikipedia.org/wiki/John_A._McDougall)
+- [Gary Yourofsky](http://www.adaptt.org/)
 
 ### Infografika
 - [Jelita jak drugi mózg?](https://kobieta.onet.pl/zdrowie/jelita-jak-drugi-mozg-infografika/x7hpkhj)
