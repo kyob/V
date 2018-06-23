@@ -1,4 +1,4 @@
-# Szybka krótka lista
+# 
 
 ### Karnizm
 - [Ukryta Przyczyna Jedzenia Mięsa - Dr. Melanie Joy](https://www.youtube.com/watch?v=AINuazo8mz0)
