@@ -25,6 +25,7 @@
  -[H.O.P.E. What You Eat Matters](https://www.youtube.com/watch?v=J0YHjPHm-Sc) napisy PL
  -[Meat The End](https://www.youtube.com/watch?v=MkSzAxvEr_Y)
  -[PlantPure Nation](https://www.youtube.com/watch?v=yBKnG9Y0owQ)
+ -[The Game Changers](http://gamechangersmovie.com/)
  
 ### Promotorzy
 - [T. Colin Campbell](https://en.wikipedia.org/wiki/T._Colin_Campbell)
