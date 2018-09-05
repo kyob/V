@@ -66,3 +66,7 @@
 ### Kogniwistyka ?
  - [Co szkoła robi z mózgami dzieci? | Angelika M. Talaga | TEDxKoninED](https://www.youtube.com/watch?v=XnPaz5e-uD8)
  - [Dlaczego tak mało pamiętasz ze szkoły? | Radosław Kotarski | TEDxKatowice](https://www.youtube.com/watch?v=0t-sG8FhC4E)
+
+
+### Inne nieposortowane
+- [Wygląd kupy wiele mówi o twoim zdrowiu!](http://www.odzywianie.info.pl/przydatne-informacje/artykuly/art,wyglad-kupy-wiele-mowi-o-twoim-zdrowiu.html)
