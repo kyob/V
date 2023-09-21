@@ -1,4 +1,7 @@
-# 
+# Wszystko co jest poniżej to stek bzdur. Nadmiar węglowodanów, a w szczególności cukier jest trucizną!
+
+
+
 
 ### Karnizm
 - [Ukryta Przyczyna Jedzenia Mięsa - Dr. Melanie Joy](https://www.youtube.com/watch?v=AINuazo8mz0)
